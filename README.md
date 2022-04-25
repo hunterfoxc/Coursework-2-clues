@@ -1,6 +1,7 @@
 # Coursework-2-clues
 This page will inform you some clues that you find in the travel.
 The first clues is about Lucy Hutchinson
+
 Diarist, combat medic, poet, translator, biographer, Lucy Hutchinson was a true 17th century trailblazer.
 Lucy was born in 1620 in the Tower of London where her father was Lieutenant. Lucy was a keen student, owing to the insistence of her father who ensured she learnt how to read and write.
 
